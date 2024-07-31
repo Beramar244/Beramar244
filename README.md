@@ -1,16 +1,49 @@
-## Hi there 👋
+_eu sou o Luiz Felipe, estudo no COLEGIO JOAO MARUQES DA SILVEIRA.
+_moro em Quatigua
 
-<!--
-**Beramar244/Beramar244** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+L.U.I.Z F.E.L.I.P.E
 
-Here are some ideas to get you started:
+_MAIS CONHECIDO COMO            BERAMAR           MEU APELIDO MAIS CONHECIDO DA CITY 😂
+                
+                            E ISSO FE EM DEUS E BAI. 
+                            
+                     
+                       
+                                  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
