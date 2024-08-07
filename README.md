@@ -11,7 +11,7 @@ _MAIS CONHECIDO COMO            BERAMAR           MEU APELIDO MAIS CONHECIDO DA 
 
 
                     
-![]( https://tenor.com/pt-PT/view/me-when-anime-shotgun-me-when-someone-mentions-anime-loading-gun-gif-26027015)
+
 
 
                             
