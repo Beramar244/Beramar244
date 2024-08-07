@@ -5,8 +5,7 @@ L.U.I.Z F.E.L.I.P.E
 
 _MAIS CONHECIDO COMO            BERAMAR           MEU APELIDO MAIS CONHECIDO DA CITY 😂
 
-![](https://media.tenor.com/ZIqNtn3S_MMAAAAM/jair-bolsonaro-bolsonaro.gif)
-
+![](https://tenor.com/pt-PT/view/alpinestars-motorsport-motorcycle-moto-tenor-gif-21326302)
 
 
 
